@@ -1,4 +1,4 @@
-# Taha Nasir
+# Taha Rana Nasir
 
 **Senior Software Engineer** · Lahore · shipping for New Zealand, Canada & Pakistan
 
